@@ -19,4 +19,4 @@ https://sites.google.com/view/lightbible3/home
 
 震撼下載 
 
-https://1drv.ms/u/c/a8b69718d8b3ed12/EfX7ToEcBoJEgicOuKASbU0Bf0B0dRjdgjLN0uiuIO3Cgw?e=IheUAN
+https://1drv.ms/u/c/a8b69718d8b3ed12/EWWbadftjCVJj1E78MFHi1wBItQXwMMaFuz2Ybq_JbFRvQ?e=iEzDjA
